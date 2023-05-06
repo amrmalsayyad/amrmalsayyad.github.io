@@ -1,2 +1,2 @@
 # amrmalsayyad.github.io
-Amr M. Al-Sayyad M.D.
+Amr M. Al-Sayyad, M.D.
